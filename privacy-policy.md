@@ -23,7 +23,7 @@ We do not share your information with any 3rd Parties
   * ##### Your Location
     We ask for your location in order to customise our content for you basing on your location.
 
-This privacy policy applies to only Vipers app. Please visit www.viperssc.co.ug for the website privacy policy
+This privacy policy applies only to Vipers app. Please visit www.viperssc.co.ug for the website privacy policy
 
 Changes :- 
     _Our Privacy Policy may change from time to time. We will post any privacy policy changes on this page and you will be notified of any changes_
