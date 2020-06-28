@@ -20,5 +20,7 @@ Have questions or concerns about Vipers App, our Services and privacy?
 Contact us;
 
   tonnybaw75@gmail.com.
+  
   +256 781521534
+  
   +256 704436434
